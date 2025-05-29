@@ -10,3 +10,16 @@ Wearable gloves are utilized here as a cheap alternative. There are four flex se
 
 
 
+
+
+
+
+![project output](https://github.com/user-attachments/assets/f790a122-e234-4fb7-92c0-d0a39eea834b)
+
+
+https://github.com/user-attachments/assets/a0ba1d56-f0b0-4826-ad24-15634198e422
+
+
+
+
+
